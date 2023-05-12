@@ -1,0 +1,1 @@
+Desenvolvedor de jogos com conhecimento em Unity e habilidades básicas em C e Java. Possuo experiência em montagem e manutenção de computadores, garantindo um ambiente de trabalho eficiente e produtivo. Procuro novos desafios na área de desenvolvimento de jogos e estou sempre disposto a aprender e aprimorar minhas habilidades.
